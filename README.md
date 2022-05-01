@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @zaezaex
-- 👀 I’m interested in making amvs and games
+- 👀 I’m interested in making amimations and games
 - 🌱 I’m currently learning coffee script
 - 💞️ I’m looking to collaborate on anything
 - 📫 How to reach me profile tiktok@zaezaexx yt@zaezaex
